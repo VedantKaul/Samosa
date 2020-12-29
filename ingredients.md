@@ -9,4 +9,4 @@
 9. 1 teaspoon finely chopped ginger or 1 inch ginger
 10. ½ teaspoon red chili powder or cayenne pepper
 11. 1 pinch asafoetida (hing) – optional
-12. 1 to 2 teaspoons dry mango powder
+12. 1 to 2 teaspoons dry mango powder.
